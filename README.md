@@ -1,6 +1,6 @@
 <div align="center">
 
-### LIL JUICE 🌱
+### JUICE 🌱
 
 ___
 
